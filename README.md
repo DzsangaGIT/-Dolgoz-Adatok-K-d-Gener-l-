@@ -1,0 +1,1 @@
+# -Dolgoz-Adatok-K-d-Gener-l-
